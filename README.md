@@ -1,0 +1,1 @@
+# stockmindset-app
